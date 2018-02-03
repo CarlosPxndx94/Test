@@ -5,15 +5,6 @@ fdsd
 sfdfsd
 fsdfsd
 fsdfsdf
-sdfdsf
-dsf
-ds
-dfdsf
-sdf
-sdf
-sdfsd
-fsdfsd
-sdf
 sdf
 sdfsd
 fsdf
